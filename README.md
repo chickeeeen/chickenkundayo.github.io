@@ -1,2 +1,2 @@
 # chickenkundayo.github.io
-My GitHub Pages
+ちきん（Twitter @chickenkundayo）のサイトです。
